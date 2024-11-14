@@ -1,4 +1,4 @@
-# Gunship Battle MOD APK Unlimited Money Unduh Gratis Untuk Android
+# Gunship Battle MOD APK Unlimited Gold Unduh Gratis Untuk Android
 
 ## Apa itu Gunship Battle MOD APK?
 
